@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @undercoverfrodo
+- 👀 I’m interested in Audio Engineering, Music Production, Games and Tech overall. 
+- 🌱 I’m currently learning basic life skills, and to be patient 
+- 💞️ I’m NOT looking to collaborate because I dont have nothing to contribute
+- 📫 How to reach me: send a pigion
+- 😄 Pronouns: He/He/Him
+- ⚡ Fun fact: I love Michael Jackson
